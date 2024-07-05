@@ -1,1 +1,0 @@
-# agrithec_wissal
